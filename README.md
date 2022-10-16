@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jhenalyn Subol 
-- 👀 I’m interested in programming💻 and piano🎹
+- 👀 I’m interested in programming💻 and piano🎹 and poetry📝
 - 🌱 I’m currently pursuing my Bachelor's degree in Computer Engineering at UniCal
 - 📫 How to reach me: suboljhenalyn3@gmail.com
 
