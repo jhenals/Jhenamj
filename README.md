@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jhenalyn Subol 
+- 👋 Hi, I’m Jhenalyn Lajara Subol 
 - 👀 I’m interested in Programming 💻, Piano 🎹 and Poetry 📝
 - 🌱 I’m currently pursuing my Bachelor's degree in Computer Engineering at the University of Calabria
 - 📫 How to reach me: suboljhenalyn3@gmail.com
